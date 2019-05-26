@@ -1,0 +1,1 @@
+# open-tasks-of-internship-vk-2019-2
